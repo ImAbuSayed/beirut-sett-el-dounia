@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور عيني في سكون الليل
+> قلبي ينادي بشوق وميل
+> نار الغرام تسري في دمي
+> وأنتِ دوائي في كل همي
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
